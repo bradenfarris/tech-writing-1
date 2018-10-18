@@ -7,3 +7,4 @@
 5. Garlic prefers a well-drained soil.
 6. Foragers should be aware that some wild mushrooms are toxic.
 7. Of all the animals that have lived closely with human beings, cats must surely be the least influenced by them.
+ 
